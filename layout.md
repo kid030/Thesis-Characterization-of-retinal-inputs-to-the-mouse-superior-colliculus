@@ -8,11 +8,3 @@ hfjjffhcbd8.html
 l6hama4mlg8.html
 52pjbpp6ft.html
 7eschqpvk9.html
-q08fubsd7ug.html
-rh96klf9ko.html
-6usg4sstru8.html
-4q15liojhhg.html
-c9uqia6f5ug.html
-hb1eqmap6m8.html
-48taiausg1g.html
-iu7vf7buda8.html
