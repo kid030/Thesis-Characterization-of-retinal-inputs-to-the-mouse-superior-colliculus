@@ -1,7 +1,7 @@
 ---
 version: 2
 multicolumn: true
-web-width: 800px
+web-width: 500px
 align: center
 float: h!
 grid:
