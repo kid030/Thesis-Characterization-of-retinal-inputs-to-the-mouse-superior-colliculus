@@ -1,6 +1,6 @@
 ---
 version: 2
-multicolumn: false
+multicolumn: true
 web-width: 500px
 align: center
 float: h!
@@ -17,3 +17,4 @@ grid:
     - 1
     - 1
     url: "/users/272622/articles/396316/master/file/figures/Thesis_Fig-1_Fig1/Thesis_Fig-1_Fig1.png"
+    folder_url: "/users/272622/articles/396316/master/folder/figures/Thesis_Fig-1_Fig1"
