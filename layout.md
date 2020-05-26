@@ -5,6 +5,8 @@ figures/Thesis_Fig-1_Fig2
 hah66le5m4o.html
 iqi7qo72kvg.html
 pk8kul7nvo8.html
+figures/Figure 1
+oohjl7243f8.html
 0ip8kujb308.html
 hfjjffhcbd8.html
 551eqfd5tlg.html
