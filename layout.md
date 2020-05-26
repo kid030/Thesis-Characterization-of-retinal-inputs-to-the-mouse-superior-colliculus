@@ -21,4 +21,5 @@ j6sf0u5ttog.html
 96c7callu2o.html
 l6hama4mlg8.html
 52pjbpp6ft.html
+figures/Figure 6
 7eschqpvk9.html
