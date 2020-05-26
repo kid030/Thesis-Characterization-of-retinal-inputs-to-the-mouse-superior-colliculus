@@ -6,7 +6,6 @@ hah66le5m4o.html
 iqi7qo72kvg.html
 pk8kul7nvo8.html
 figures/Figure 1
-ibeq7kbc378.html
 oohjl7243f8.html
 0ip8kujb308.html
 hfjjffhcbd8.html
