@@ -8,7 +8,6 @@ pk8kul7nvo8.html
 figures/Figure 1
 emjuu8r5tt8.html
 ibeq7kbc378.html
-j4koh6jm7jo.html
 c230c9hd9ho.html
 oohjl7243f8.html
 0ip8kujb308.html
