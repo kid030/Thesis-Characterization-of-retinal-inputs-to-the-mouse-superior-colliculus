@@ -13,6 +13,8 @@ i1de0eckceo.html
 hfjjffhcbd8.html
 figures/Figure 3
 bq8a07ni45o.html
+figures/Figure 4
+vn3eb1lnrdo.html
 551eqfd5tlg.html
 96c7callu2o.html
 l6hama4mlg8.html
