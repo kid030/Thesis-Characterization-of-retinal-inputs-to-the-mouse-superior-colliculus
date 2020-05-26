@@ -11,6 +11,8 @@ figures/Figure 2
 i1de0eckceo.html
 0ip8kujb308.html
 hfjjffhcbd8.html
+figures/Figure 3
+bq8a07ni45o.html
 551eqfd5tlg.html
 96c7callu2o.html
 l6hama4mlg8.html
