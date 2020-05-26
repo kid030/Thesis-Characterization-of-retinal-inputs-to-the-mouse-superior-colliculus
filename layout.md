@@ -18,6 +18,8 @@ vn3eb1lnrdo.html
 figures/Figure 5
 j6sf0u5ttog.html
 551eqfd5tlg.html
+figures/Figure 61
+73m6629vjro.html
 96c7callu2o.html
 l6hama4mlg8.html
 52pjbpp6ft.html
