@@ -7,6 +7,8 @@ iqi7qo72kvg.html
 pk8kul7nvo8.html
 figures/Figure 1
 oohjl7243f8.html
+figures/Figure 2
+tcoc70at6bo.html
 0ip8kujb308.html
 hfjjffhcbd8.html
 551eqfd5tlg.html
