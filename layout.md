@@ -1,7 +1,6 @@
 untitled.html
 figures/Thesis_Fig1
 tggum0osuag.html
-018ol1of218.html
 figures/Thesis_Fig-1_Fig1
 rhpdforget8.html
 figures/Thesis_Fig-1_Fig2
