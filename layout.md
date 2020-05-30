@@ -28,5 +28,11 @@ l6hama4mlg8.html
 figures/Figure 6
 7eschqpvk9.html
 3uc6f65tpoo.html
+ve84lcaen9.html
+nr4fotfskto.html
+0n3d909sg6.html
+km420f8cla8.html
+fpkpjf2ef88.html
+ri8u2jj46do.html
 mlkdjk1peio.html
 4a0kgb8kjv.html
