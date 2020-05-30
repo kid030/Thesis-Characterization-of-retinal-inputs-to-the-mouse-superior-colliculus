@@ -7,6 +7,7 @@ figures/Thesis_Fig-1_Fig2
 hah66le5m4o.html
 iqi7qo72kvg.html
 pk8kul7nvo8.html
+figures/Figure 1
 oohjl7243f8.html
 figures/Figure 2
 i1de0eckceo.html
