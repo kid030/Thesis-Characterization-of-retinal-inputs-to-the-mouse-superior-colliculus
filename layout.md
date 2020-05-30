@@ -31,7 +31,6 @@ figures/Figure 6
 ve84lcaen9.html
 nr4fotfskto.html
 0n3d909sg6.html
-km420f8cla8.html
 fpkpjf2ef88.html
 ri8u2jj46do.html
 mlkdjk1peio.html
